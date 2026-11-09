@@ -1,0 +1,1 @@
+# acnl-kor-hires-patch
